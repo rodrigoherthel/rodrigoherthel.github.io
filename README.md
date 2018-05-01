@@ -1,2 +1,0 @@
-# rodrigoherthel.github.io
-Curriculo
